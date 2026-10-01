@@ -29,7 +29,7 @@
 
  <p align="center"><img src="https://64.media.tumblr.com/60cf38d45b66b28ab1065517860375ab/beea52f1ab3141ee-95/s75x75_c1/737d3a625e236e18f9647c31e4f48556768b9c91.gif" />
 <p align="center">   ɪᴍ ᴠᴇʀʏ sʜʏ ᴀɴᴅ ɪ ᴍᴏsᴛʟʏ ɴᴏᴛ ᴛᴀʟᴋᴀᴛɪᴠᴇ. ᶻ 𝗓 𐰁
- 
+<p align="center">   (¬`‸´¬) ᴘʟᴇᴀsᴇ ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴍʏ sᴋɪɴs ◞ ᴛʏsᴍᴍ. .ᐟ.ᐟ
 <p align="center">     ʙᴇ ᴋɪɴᴅ (˶˃ ᵕ ˂˶) .ᐟ.ᐟ ɪ ʟᴏᴠᴇ ᴛᴏ ᴅʀᴀᴡ ◞ ʟɪsᴛᴇɴɪɴɢ ᴛᴏ ᴍᴜsɪᴄ. 𓂃✍︎
  
 <p align="center">    ɪ ʜᴀᴠᴇ ʙᴀᴅ ᴍʜ ᴀɴᴅ ᴍᴏʀᴇ. 𓇢𓆸
