@@ -8,6 +8,13 @@
 
  ![alt text](image.gif)
 
+<div align="center">
+
+  <a href="https://impinkie-gokublackswife.atabook.org/"><i>Ata</i></a>
+  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://impinkiegokublackwife.straw.page"><i>Straw</i></a>
+
+</div>
 
 </div>
 
